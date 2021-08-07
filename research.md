@@ -15,4 +15,4 @@
 
 ## [Health](https://www.health.com/condition/infectious-diseases/coronavirus/covid-vaccine-kids-12-15)
 
-### [Click to go Back to Home](https://www.pngrepo.com/download/82556/left-back-straight-arrow.png)](/)
+### [![Click to go Back to Home](https://www.pngrepo.com/download/82556/left-back-straight-arrow.png)](/)
