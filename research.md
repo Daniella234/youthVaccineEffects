@@ -14,3 +14,5 @@
 - “Ongoing studies on the COVID-19 vaccines indicate serious side effects found to date are extremely rare. People who have received the vaccine in these studies continue to be monitored for any longer-term side effects.”
 
 ## [Health](https://www.health.com/condition/infectious-diseases/coronavirus/covid-vaccine-kids-12-15)
+
+### [Click to go Back to Home](https://www.pngrepo.com/download/82556/left-back-straight-arrow.png)](/)
