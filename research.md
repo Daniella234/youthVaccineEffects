@@ -1,4 +1,4 @@
-# Resarch
+# Research
 
 ## [MIT Medical](https://medical.mit.edu/covid-19-updates/2021/06/will-kids-have-long-term-effects-covid-19-vaccine)
 - “Researchers have studied the use of mRNA in vaccines for influenza, Zika, and rabies. It’s also been studied as a treatment for cancer.”
